@@ -1,0 +1,1 @@
+milk, chocolate chips, bread, eggs, flour.

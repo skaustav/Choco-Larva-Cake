@@ -1,0 +1,1 @@
+take 2 eggs in a mixing boul , put some flours, 500ml of milk, stir it properly, take the breds, slice the batter in the bread , put it in a oven for 3.4 hours, put it in a deep freezer for 1.2 days and then the choco larva cake is ready to eat. 
